@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @untappedChi
 - 👀 I’m interested in ....life
-- 🌱 I’m currently learning about ....the world that's surrounding me.
+- 🌱 I’m currently learning about ....the world that's surrounds me.
 - 💞️ I’m looking to collaborate ....for making the space and time correct.
 - 📫 How to reach me ....that i don't knnow.
 
